@@ -17,7 +17,17 @@ Here are some of the top great clip coupons and promotions you can use this mont
 
 -----
 
+## How to use Great clips coupons 
 
+1. Email signup: visit the great clips promotions page and sign up with your email to recieve a $2 off coupon.
+2. Printable coupon: Look for printable coupons on social media platforms like facebook and pintrest.
+3. Local Salon deals: contact your local great clips salon to inquire about any ongoing promotions or discounts.
+4. Senior Discounts: if you are 65 or older, simple mention your age at participating salons to recieve a discount.
+
+### Frequently asked questions:
+
+Q: How can i find the nearest great clips salon? 
+A: Use the salon 
 
 
 <!--
