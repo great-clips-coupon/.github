@@ -27,8 +27,20 @@ Here are some of the top great clip coupons and promotions you can use this mont
 ### Frequently asked questions:
 
 Q: How can i find the nearest great clips salon? 
-A: Use the salon 
+A: Use the salon locator on the great clips website to find a salon near you.
 
+Q: Can I check in online for my haircut?
+A: Yes, Great clips offers an online Check in feature to reduce your wait time at the salon.
+
+Q: Are there any student discount avaliable?
+A: While there isn't nationwide student discount, some local salons may offer promotions students. It's best to check with your local salon.
+
+Q: Do great clips coupons expire?
+A: Yes, most of the coupons have expiration dates. Always check the validity period on the coupon before use.
+
+----
+
+By staying informed about current promotions and checking with your local salon, you can enjoy quality haircuts at discounted prices. Remember to signup for emails and keep an eye on social media for the latest deals. 
 
 <!--
 
